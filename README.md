@@ -1,2 +1,2 @@
-# SUJENCYY-
-For the assurance of my love 
+# SUJENCY
+exposing my love 
